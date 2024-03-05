@@ -1,1 +1,0 @@
-# AmesRupnick.github.io
